@@ -1,6 +1,6 @@
 ## Hi, I’m Kesha 👋🏻
 
-A tech-savvy and creative professional  based in Manila, Philippines
+A tech-savvy and creative professional  based in Metro Manila, Philippines
 
 - 🎨 I blend creativity with modern tools to help businesses streamline workflows and produce polished, on-brand results.
 - 🌱 Currently learning: Power BI, Digital Marketing
